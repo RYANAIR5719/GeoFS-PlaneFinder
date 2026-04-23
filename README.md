@@ -18,4 +18,4 @@ Sometimes, along the description of the image, you will also notice a couple of 
 
 _**New screenshot will be posted every Thursday. Answers will be posted every Monday.**_
 
-<sup>Inspired by @alex_banna on Discord</sup>
+<sup>Inspired by @alex_banna on Discord and the Ice711 PlaneFinder videos.</sup>
