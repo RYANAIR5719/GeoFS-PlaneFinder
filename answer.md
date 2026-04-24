@@ -1,2 +1,2 @@
-# Previous Answer (Updated Every Monday)
+# ANSWER FOR PREVIOUS EDITION (UPDATED EVERY MONDAY)
 *Nothin' here yet...*
